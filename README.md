@@ -1,2 +1,2 @@
 # On the table 
-Work in mind - in process
+Task in mind - in process
