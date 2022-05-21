@@ -5,5 +5,6 @@ Hi all, I'm going to start making a notebook where I will compile interesting We
 
 # Cool Web3 projects
 
-[Aragon Network DAO]([url](https://app.dework.xyz/an-dao)) 
+[Aragon Network DAO]([url](https://app.dework.xyz/an-dao))
+
 
