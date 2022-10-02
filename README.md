@@ -1,6 +1,6 @@
-# This is xAn aka kAmpesino
+# xAn aka kAmpesino
 
-These are the skins that shape part of who I am as a sensitive human being :)
+These are a few skins that shape part of who I am as a sensitive human being surfing web2 and web3 waves :)
 
 
 
@@ -22,26 +22,31 @@ You can browse some articles in this [Noblog | Repo](https://xancoop.noblogs.org
 
 
 
-# A handful of collabs
-
-* [Center for a Stateless Society](https://c4ss.org/content/category/spanish)
-
-* [European Coordinating Committee of “Viaje por la Vida”](https://viajezapatista.eu/es/). **Zapatistas Communities**. 
-
-* [Confoederatio Think Tank](https://confoederatio.noblogs.org/)
-
-* [Komun](https://komun.org/?l=en) ... really love this awesome guys! :)
-
-* [Space for Couter(discourse), Construction, and Coordination of Alternatives and Social Response. ECOAR Global](https://ecoarglobal.org/en/)
-
-* [Non ao TTIP!!](https://nonaottip.org/). **Galiza**, the lovely land I belong to. (Spanish State).
-
-
-
-# ... & a Facilitator
+# A Facilitator
 
 I offer training and facilitation services for groups and communities, under the umbrella of **dialogue circles** for the cultivation of **Mindfulness**. Also, practical learning of methodologies related to **Emotional Intelligence (EQI)**,conscious communication and conflict prevention / processing: **Non Violent Communication (NVC)**, **Theory U** and **Restorative Practices**...
 
  If you want to see my profile and **professional experience**, here a [clic >>](https://es.linkedin.com/in/xanbaldaio)
  
  
+ # A handful of collabs
+ 
+ * [Sensorica OVN](https://www.sensorica.co/home)
+ 
+ * [Greens for Good](https://www.sensorica.co/ventures/food-and-agriculture/greens-for-good)
+ 
+ * [Ecofintech Coop.](https://ecofintech.coop/)
+
+ * [Center for a Stateless Society](https://c4ss.org/content/category/spanish)
+
+ * [Confoederatio Think Tank](https://confoederatio.noblogs.org/)
+ 
+ * [European Coordinating Committee of “Viaje por la Vida”](https://viajezapatista.eu/es/). **Zapatistas Communities**. 
+
+ * [Komun](https://komun.org/?l=en) ... really love this awesome guys! :)
+
+ * [Space for Couter(discourse), Construction, and Coordination of Alternatives and Social Response. ECOAR Global](https://ecoarglobal.org/en/)
+
+ * [Non ao TTIP!!](https://nonaottip.org/). From **Galiza**, the lovely land I belong to. (Spanish State).
+ 
+   **Salud!**
