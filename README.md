@@ -45,7 +45,7 @@ I offer training and facilitation services for groups and communities, under the
 
  * [Komun](https://komun.org/?l=en) ... really love this awesome guys! :)
 
- * [Space for Counter(discourse), Construction, and Coordination of Alternatives and Social Response. ECOAR Global](https://ecoarglobal.org/en/)
+ * [Space for Counter (discourse), Construction, and Coordination of Alternatives and Social Response. ECOAR Global](https://ecoarglobal.org/en/)
 
  * [Non ao TTIP!!](https://nonaottip.org/). From **Galiza**, the lovely land I belong to. (Spanish State).
  
