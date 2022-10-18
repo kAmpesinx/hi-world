@@ -35,7 +35,7 @@ I offer training and facilitation services for groups and communities, under the
  
  * [Greens for Good](https://www.sensorica.co/ventures/food-and-agriculture/greens-for-good)
  
- * [Ecofintech Coop.](https://ecofintech.coop/)
+ * [Ecofintech Coop](https://ecofintech.coop/)
 
  * [Center for a Stateless Society](https://c4ss.org/content/category/spanish)
 
